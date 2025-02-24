@@ -1,0 +1,2 @@
+ENLACE A DOCUMENTO DE GOOGLE CON EVIDENCIAS DE FUNCIONAMIENTO:
+https://docs.google.com/document/d/1WKKH26hdnOo2Jz5Cwc4uHYTo6Bg6WMFPE9Jlx5qM9o4/edit?usp=sharing
